@@ -1,0 +1,2 @@
+# premium-collag-enc-001-mixed-media-encaustic-collage
+Tired of losing track of which wax layer you left off on or which collage elements you embedded in your latest mixed media piece? The Mixed Media Encaustic Collage Project Tracker is your project map from substrate to final surface, designed specifically for the multi-step process of encaustic collage.  This template eliminates the chaos of trackin
